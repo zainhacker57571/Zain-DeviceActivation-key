@@ -1,0 +1,1 @@
+# Zain-DeviceActivation-key
